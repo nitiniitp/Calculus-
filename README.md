@@ -1,5 +1,7 @@
 # Calculus
 
+https://www.youtube.com/playlist?list=PL590CCC2BC5AF3BC1
+
 https://youtube.com/playlist?list=PLF797E961509B4EB5&si=2-wG2-c35Q90F_fV
 
 https://www.youtube.com/watch?v=MO-AExWdl4Q
